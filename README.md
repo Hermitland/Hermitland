@@ -1,1 +1,1 @@
-I'm not Russian!!!! I am a Hermit crab, im a big fat noob lol
+I'm not Russian!!!! I am a Hermit crab.
